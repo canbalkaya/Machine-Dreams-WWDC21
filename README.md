@@ -9,4 +9,4 @@ Machine Dreams is a playground exhibition that explores how a machine can see dr
 
 &nbsp;
 
-Copyright © 2020 Can Balkaya — All Rights Reserved
+Copyright © 2021 Can Balkaya — All Rights Reserved
